@@ -1,1 +1,1 @@
-# Em xin kinh gui thay !
+Bai tap tuan 1 lap trinh mang
